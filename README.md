@@ -15,7 +15,7 @@ Você pode entrar em contato comigo 📫
 @lah.santos.__
 
 
-![](https://tenor.com/KJC2.gif)
+![](https://media1.tenor.com/m/fUT3rcXv9owAAAAC/spiderman-web.gif)
 
 <!--
 **Blurrylavi/Blurrylavi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
